@@ -7,5 +7,5 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 Voce pode entrar em contato comigo:
 0000110260172xsp@al.educacao.sp.gov.br
 
-![](https://tenor.com/pt-BR/view/regina-rouca-se-liga-gif-24233256)
+![](https://media.tenor.com/5puQL0RL-cgAAAAM/regina-rouca-se-liga.gif)
 
